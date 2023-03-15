@@ -1,4 +1,4 @@
-#### 🧠 Latest thoughts
+#### 🧠 My Latest thoughts
 
 <table>
 <tr>
